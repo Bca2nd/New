@@ -1,2 +1,2 @@
 # New
-https://bca2nd.github.io/New/ tab here for a quick review of my project.
+https://chinmay191201.github.io/New/ tab here for a quick review of my project.
